@@ -1,6 +1,9 @@
-Heya,I'm IceLoup ! 
+Heya,I'm IceLoup !
+ 
 I'm the owner of Icy Events organization ! 🧊 
-My discord server --> https://discord.com/invite/Ubagb9YpaC
+
+My discord server -->
+ https://discord.com/invite/Ubagb9YpaC
 
 
 <!---
